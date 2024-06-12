@@ -1,2 +1,0 @@
-# grupo
-seleção da turquia
